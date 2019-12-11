@@ -136,6 +136,32 @@
 
 吗大为：上海东西贵不贵?
 
-​			   Shànghǎi dõngxī guì bu guì?
+Wǒ bù dǒng.			   Shànghǎi dõngxī guì bu guì?
 
 琳娜：	东西不太贵。上海人做衣服做得真好。我买了很多件。
+
+​			   Dōngxī bú tài guì. Shànghǎi rén zuò yīfu zuò de zhēn hǎo. Wǒ mǎi le hěn duō jiàn.
+
+吗大为：上海人喜欢说上海话，他们普通话说得怎么样？
+
+​			   Shànghǎi rén xǐhuan shuō Shànghǎihuà, tāmen pǔtōnghuà de zěnmeyàng?
+
+琳娜：	他们普通话说得很好，年轻人英语说得也很流利。
+
+​			   Tāmen pǔtōnghuà de hěn hǎo, niáqīng rén shuō de yě liúlì.				
+
+吗大为：你学没学上海话？
+
+​			   Nǐ xué méi xué Shànghǎihuà？
+
+琳娜：	学了。我会说 ”阿拉勿懂“。
+
+​			   Xué le. Wǒ huì shuō "Ālā wù dǒng".
+
+吗大为：你说什么? 我不懂。
+
+​			   Nǐ shuō shénme? Wǒ bù dǒng.
+
+琳娜：	这就是上海话的“我不懂”。
+
+​			   Zhè jiù shì Shànghǎihuà "wǒ bù dǒng".
